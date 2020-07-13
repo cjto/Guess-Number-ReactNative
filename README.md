@@ -6,4 +6,4 @@
 
 ## Video Walkthrough
 
-<img src='http://g.recordit.co/uL3my2oUH1.gif' width=250><br>
+<img src='http://g.recordit.co/Wib7KFSaNM.gif' width=250><br>
